@@ -1,4 +1,4 @@
-# 
+# updated birdeye sniper bot | sandwich-attack-execution + liquidity-pool-analysis offers the most advanced birdeye sniper bot, with sandwich-attack-execution and
 
 
 
